@@ -1,5 +1,7 @@
 # Fredagsopgave
 
-Idag skal nicklas og Babak arbejde sammen
+Idag skal Nicklas og Babak arbejde sammen
 
 fredags opgave
+
+wupwup 
